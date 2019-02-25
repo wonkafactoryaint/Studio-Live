@@ -1,0 +1,2 @@
+# Studio-Live
+  Connecting creators around the world to work on projects together in real time face to face through video/virtual reality/ holographic capability’s in future applications to easily connect  with friends and colleagues around the world to create like goals mainly for the music enthusiast recording songs with artist around the world recording and creating together on the same project in real time no longer have to catch a flight to record with your favorite artist or business partners 
